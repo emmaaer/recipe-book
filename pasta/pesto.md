@@ -1,0 +1,14 @@
+## Pesto pasta
+
+## Ingredients
+
+#Sauce
+- Pine nuts
+- Basil
+- Olive oil
+- Parmesan
+- Lemon
+
+#Extras
+- Spaghetti
+- Bread
